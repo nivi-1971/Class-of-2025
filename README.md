@@ -1,5 +1,6 @@
 # My Graduation 🎓 
 Institution: The Oxford College of Business Management, HSR layout, Bangalore.
+
 Quote:"Education guves wings, but an MBA teaches you how to fly with purpose".
 
 Here are some of my favourite moments from graduation day:
